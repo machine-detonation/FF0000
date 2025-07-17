@@ -29,3 +29,34 @@
 10:04 PM[Serial Designation N (DNC)] The more you weight the harder you are to kidnap. Stay safe, eat cake 😋
 
 10:49 AM[Job Pooper(partypooper)] Ever wanted a job? Well, have you ever thought of filling out a job application? W/B FOR JOB APPLICATION RP Note:
+
+09:58 PM[bartender goober] 🌈GAY KISSING RP!❤ W2J
+
+**06:21 PM[pomogender] thinks: okay so have you considered shutting up? you truly have nothing of value to say! ^_^**
+
+07:46 PM[''Betrayed 1×4 • C+H!! #3] Annihilation..? Heh.. How about i annihilate that dihh of yours.. c'mere big boy.
+
+[Makinskinstillmybsfwhispsme] thinks: n-n-n-n-no cool.... R-r-r-roleplays....?????? I-i-i-i-i-i-i-i thought w-w-w-w-w-we had something s-s-s-s-s-s-special dock-chan..!!
+
+**5:44 PM[[🐝🗡] - P! :: c+h] thinks: I love how I'm having violent hallucinations and nobody cares/notices ]]**
+
+**11:41 AM[rainbow ,, semi-offtab] thinks: • sans is MINE!! and if u DARE to lay a finger on him..... I'LL KILL U!!!!! /ref /j**
+
+[W..W...why not azuretime!!...] whispers: ngh!! ~~... slow down its deep in !!! not infront of the kid..
+
+FREAKY Pony] Hey! here's a tip: your skin is too detailed. I recommend taking off a few things like, for example, you're clothes 💕
+
+**[[ ɪᴄɪᴄʟᴇ ʏᴇᴛɪ ᴄ. - ᴄʀᴋ | ᴄ+ʜ ]] I can't tell if ur zteve iz fat or pregnant I'm zo zorry**
+
+[two gay] Hngh... 1x1x1x1... It's so big... I don't think I can take more... Ah!~...
+
+[sunburst swordmy pc broken] whispers: because society needs something to goon to❤️
+
+[Vampire! <3] Who been a good boy~
+
+[024 darkloser 😼] H-harder..~!! ahh
+
+[Mikael-] whispers: imgonnagiveubckshts
+
+[Stranger // OMORI] thinks: But he had a good idea, he killed people and thus reduced the population.
+> ^ requires context but ion feel like providing it srry
