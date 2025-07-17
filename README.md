@@ -1,4 +1,6 @@
-12:37 PM[[ ships iwcuf ]] thinks: :: can ' t believe there ' s gonna be rocket phighting x medic tf2 yaoi in this rp / silly
+> the one's that are in **bold** are things I've said
+
+**12:37 PM[[ ships iwcuf ]] thinks: :: can ' t believe there ' s gonna be rocket phighting x medic tf2 yaoi in this rp / silly**
 
 11:24 AM[<---Plays ⛏craft] thinks: "p-papa!! : b/w for male pregnancy forsaken!!only [noli , 7n700 , Elliot, two time , 1x1 and chicken man
 
@@ -18,7 +20,7 @@
 
 09:46 PM[Bald sua] “PUSH PUSH” B/W for gay pregnancy rp
 
-09:00 PM[oned zeph. - oc] thinks: what if instead of slenderman it was transgenderman and instead collecting pages we collected pronouns ]]
+**09:00 PM[oned zeph. - oc] thinks: what if instead of slenderman it was transgenderman and instead collecting pages we collected pronouns ]]**
 
 03:57 PM[Sonic] Gay kissing hangout 🤤💦 [13+ ONLY (whisper to join prob wont notice boops srry/if there's freaky stuff going on lmk 😭)
 
