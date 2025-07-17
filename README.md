@@ -1,4 +1,4 @@
-> the one's that are in **bold** are things I've said
+> the ones that are in **bold** are things I've said
 
 **12:37 PM[[ ships iwcuf ]] thinks: :: can ' t believe there ' s gonna be rocket phighting x medic tf2 yaoi in this rp / silly**
 
