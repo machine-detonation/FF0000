@@ -1,5 +1,11 @@
 > the ones that are in **bold** are things I've said
 
+
+
+**08:30 PM[[name ideas?] - oc] thinks: lab rps are so soso fun!! I love contracting the bubonic plague /silly /j**
+
+**08:27 PM[[name ideas?] - oc] thinks: psychological torture is my favorite pastime!**
+
 **12:37 PM[[ ships iwcuf ]] thinks: :: can ' t believe there ' s gonna be rocket phighting x medic tf2 yaoi in this rp / silly**
 
 11:24 AM[<---Plays ⛏craft] thinks: "p-papa!! : b/w for male pregnancy forsaken!!only [noli , 7n700 , Elliot, two time , 1x1 and chicken man
