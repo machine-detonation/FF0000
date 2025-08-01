@@ -2,6 +2,12 @@
 
 
 
+03:22 PM[Whisper to be my boyfriend] WHISPER TO BE MY ONLINE BOYFRIEND
+
+03:37 PM[LOVE-LETTER-FOR-YOU.TXT.vbs] p-papa.... I want milkies
+
+10:05 PM[LOVE-LETTER-FOR-YOU.TXT.vbs] I like it bwtter without clothes........ //?????JOKE JOKE JOKE JOEK
+
 **08:30 PM[[name ideas?] - oc] thinks: lab rps are so soso fun!! I love contracting the bubonic plague /silly /j**
 
 **08:27 PM[[name ideas?] - oc] thinks: psychological torture is my favorite pastime!**
